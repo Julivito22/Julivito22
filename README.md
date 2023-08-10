@@ -4,6 +4,7 @@
 
 
 
-Tech skills https://cdn-icons-png.flaticon.com/512/5968/5968292.png
+Tech skills ![image](https://github.com/Julivito22/Julivito22/assets/122409390/4f08ce6b-c459-4396-99b6-519372b03c84)
+
 
 
