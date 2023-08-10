@@ -4,9 +4,24 @@
 
 
 
-Tech skills 
+### Tech skills 
 
 ![Frame-1 (8)](https://github.com/Julivito22/Julivito22/assets/122409390/4858b2e7-8914-4f2e-80ca-1cafd4b3264a)
+
+
+### Soft skills
+
+* POSITIVE ATTITUDE
+* INITIATIVE
+* ADAPTABILITY
+* AGILE LEARNING
+* AUTODIDACT
+* COLLABORATION
+* EMPATHY
+* DEDICATION
+* ACTIVE LISTENING
+* EMOTIONAL INTELLIGENCE
+* OPEN MIND
 
 
 
