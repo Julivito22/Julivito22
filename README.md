@@ -4,7 +4,8 @@
 
 
 
-Tech skills ![image](https://github.com/Julivito22/Julivito22/assets/122409390/4f08ce6b-c459-4396-99b6-519372b03c84)
+Tech skills 
 
+![Frame-1 (4)](https://github.com/Julivito22/Julivito22/assets/122409390/755205c7-cddd-4484-b1bb-08ff93b2e97b)
 
 
