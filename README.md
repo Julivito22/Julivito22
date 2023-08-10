@@ -6,9 +6,8 @@
 
 Tech skills 
 
+![Frame-1 (6)](https://github.com/Julivito22/Julivito22/assets/122409390/d8e56132-1ba1-4254-85a4-6d463740abda)
 
-
-https://github.com/Julivito22/Julivito22/assets/122409390/073a75cd-a2e8-47b0-a534-9d27b4355fc9
 
 
 
